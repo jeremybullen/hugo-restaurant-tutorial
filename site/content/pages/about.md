@@ -37,5 +37,4 @@ You may wonder what comes next now that you are a Christian. First, God’s Word
 
 Also, you should be baptized in obedience to Jesus Christ and as a testimony to your faith. “And Jesus came up and spoke to them, saying, ‘All authority has been given to Me in heaven and on earth. Go therefore and make disciples of all the nations, baptizing them in the name of the Father and the Son and the Holy Spirit, teaching them to observe all that I commanded you; and lo, I am with you always, even to the end of the age’” (Matthew 28:18-20).
 
-Sincerely,
 # Jeremy Bullen
